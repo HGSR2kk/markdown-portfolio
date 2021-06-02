@@ -1,1 +1,1 @@
-(Image of Zoro) [https://www.google.com/search?q=zoro&sxsrf=ALeKk01lhCWDdTUy9rvMp-Pm_G5ygaTEQA:1622638223788&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjCo7W3_vjwAhX9I7kGHdYPDQkQ_AUoAXoECAEQAw&biw=1440&bih=767#imgrc=T4QHYYfjD7fBsM]
+(Image of Zoro) [https://ovicio.com.br/wp-content/uploads/2020/08/20200824-one-piece-zoro-1190171-1280x0-1-1200x675.jpeg]
